@@ -1,1 +1,1 @@
-# computer-store
+# teknologjia dhe adoleshentet
